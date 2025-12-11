@@ -1,4 +1,4 @@
-# 💫 About Me:
+# About Me:
 currenty fresher looking for job , collab with web devlopers , i have skill like html css ,js , python 
 
 
